@@ -1,4 +1,4 @@
-# Adibuja Industrial Supplies & Worksite Equipment Deals in the USA
+# Adibuja | Suppliers Marketplace for Industrial Supplies & Worksite Equipment Deals in the USA
 
 Get access to a trusted platform for **buying industrial supplies online**, including **factory tools**, **material handling gear**, and **safety equipment** tailored for warehouses, manufacturing facilities, and construction sites across the USA. Whether you're a facility manager or procurement professional, our platform ensures quick delivery and competitive pricing.
 
